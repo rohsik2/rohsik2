@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+https://rohsik2.notion.site/5-a2e554b8bcc74954a381fa184e68ee0e
